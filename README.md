@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on something 
 - 📫 How to reach me to give me money...
 - 😄 Pronouns: Noun
-- ⚡ Fun fact: Fart Fact
+- ⚡ Fun fact: Soul Fact
 
 <!---
 ra82lja1n/ra82lja1n is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
